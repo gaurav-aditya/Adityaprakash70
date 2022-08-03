@@ -3,7 +3,7 @@
 - 👀 I’m interested in Competitive Coding
 - 🌱 I’m currently learning Full Stack development,Android development,C,C++.
 - 💞️ Ask me about tech related stuff.
-- 📫 How to reach me:Instagram - @adityapandey2278
+- 📫 How to reach me:Instagram -https://instagram.com/adityapandey2278
 -  Pronouns:He/His
 -  Fun Fact- I really enjoy to learn new techniques & techology.
 
